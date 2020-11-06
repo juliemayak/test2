@@ -1,1 +1,1 @@
-people love the people
+people help the people
