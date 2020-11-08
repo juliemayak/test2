@@ -1,1 +1,0 @@
-people help the people :)
